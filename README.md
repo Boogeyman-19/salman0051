@@ -27,7 +27,7 @@ Can reach out on the below mail
 
 Email: salman39302@gmail.com
 
-LinkedIn: https://www.linkedin.com/in/salman-skaik-813bab264/
+LinkedIn: https://www.linkedin.com/in/salman-shaik-813bab264/
 
 **Open to Collaboration:**
 
